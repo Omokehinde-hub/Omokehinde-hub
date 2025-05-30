@@ -54,7 +54,7 @@ I'm looking to merge my finance and DevOps skillsets to become a **Cloud-native 
 ### 📫 Let's Connect
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/salam-azeez-kehinde-aat-aca-93a776213/)
-- 📧 Email: ganiyatabdulsalam2021@gmail.com
+- 📧 Email: salamazeez258@gmail.com
 
 ---
 
